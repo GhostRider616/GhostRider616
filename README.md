@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GhostRider616
-- 👀 I’m interested in Rainbow six siege
-- 🌱 I’m currently learning A lot of things 
+- 👀 I’m interested in Rainbow six siege and more games
+- 🌱 I’m currently learning... A lot of things 
 - 📫 How to reach me... find it out! hahahah
 - 💲  my profession: online sales of healthy food and comics; network and hardware technician
 - From Brazil
